@@ -4,4 +4,4 @@ I want to do a project related to my city ( Bytom ) . It is old town and has got
 
 I started taking photography and made guide. Now I would like to make it's version on the Internet , it would be great if people could explore this subtitle , and can find a new subtitle , can add a photo to the data address / GPS . I want to make people more interested in their town , it would be great if they also  feel like an adventure hunters ; )
 
-I hope that it will be only the first but not the last reminder of my Bytom. I have some ideas for the guide .
+I hope, it is first but not the last reminder of my Bytom. I have some ideas for another guides .
